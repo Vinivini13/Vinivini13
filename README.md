@@ -3,4 +3,4 @@ Olá, eu sou o Vinicius! 👋
 - 🎓 Formação: Ensino Médio
 - 💼 Trabalho: Marinheiro
 - ⚡ Habilidades: Ser paciente
-- 🖋️ No meu tempo livre eu: Jogo videogame 
+- 🖋️ No meu tempo livre eu: Faço academia 
